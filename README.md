@@ -1,0 +1,1 @@
+Es una version ultra optimizada para hacer JAMMING a dispositivos en la bnada 2.4. Inspirado en el malestar que causa la musica de MIERRRRDA como el regaton o cuerteto. Prueben, prueben y despues digan como les fue.
