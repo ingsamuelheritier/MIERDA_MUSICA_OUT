@@ -1,1 +1,1 @@
-Es una version ultra optimizada para hacer JAMMING a dispositivos en la bnada 2.4. Inspirado en el malestar que causa la musica de MIERRRRDA como el regaton o cuerteto. Prueben, prueben y despues digan como les fue.
+Es una version ultra optimizada para hacer JAMMING a dispositivos en la banda 2.4. Inspirado en el malestar que causa la musica de MIERRRRDA como el regaton o cuerteto. Prueben, prueben y despues digan como les fue dandole paz mental y espiritual a ustedes y el resto de la humanidad que odia esa musica.
